@@ -1,0 +1,6 @@
+- 👋 oi sou '@iarasilvinha
+- 👀 me chamo raissa tenho 15 anos
+- 🌱 estudante de pensamento computacional
+- 💞️quero fazer agronomia 
+- 📫 pretendo aprender mais
+--->
